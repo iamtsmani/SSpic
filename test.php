@@ -39,3 +39,5 @@ The first single, a dappan koothu number titled "Marana Mass" was released on De
 
 The Audio Rights was bagged under Sony Music in 6th December 2018
 fjiodjfodjfj
+
+Marana Mass
